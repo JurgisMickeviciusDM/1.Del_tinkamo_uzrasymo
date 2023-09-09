@@ -1,0 +1,2 @@
+# Del_tinkamo_uzrasymo
+Del_tinkamo_uzrasymo
